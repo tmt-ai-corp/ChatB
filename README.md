@@ -1,2 +1,2 @@
 # ChatB
-Meet me at the screen
+I'll Be Here, Right in Your Hand.
